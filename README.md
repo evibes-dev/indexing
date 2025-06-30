@@ -7,7 +7,8 @@ https://owntweet.com/thread/417285
 https://pocket.co/share/d58f4d40-fea4-4cab-b4ed-72644b5fa694
 https://www.pearltrees.com/education_vibes/bashkir-medical-university/id94120902
 https://diigo.com/0102n6z
-https://throne.com/evibes# indexing](https://themediumblog.com/blog/bashkir-state-medical-university--a-guide
+https://throne.com/evibes
+https://themediumblog.com/blog/bashkir-state-medical-university--a-guide
 https://trackrecord.id/read-blog/17181
 https://nprlive.com/blog/bashkir-state-medical-university--a-guide
 https://vocal.media/education/why-choose-bashkir-state-medical-university-for-mbbs
