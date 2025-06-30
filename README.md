@@ -1,4 +1,4 @@
-[https://themediumblog.com/blog/bashkir-state-medical-university--a-guide
+https://themediumblog.com/blog/bashkir-state-medical-university--a-guide
 https://trackrecord.id/read-blog/17181
 https://nprlive.com/blog/bashkir-state-medical-university--a-guide
 https://vocal.media/education/why-choose-bashkir-state-medical-university-for-mbbs
